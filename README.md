@@ -1,5 +1,5 @@
 ## Hi , I'm Cherri, a certified business intelligence analyst
-
+cherrij24@gmail.com
 [Linkedin Badge](https://www.linkedin.com/in/cherrijackson/)
 
 Hi, I'm Cherri, a certified business intelligence analyst with experience on more than six technical projects. My skills include business analytics, data visualization and storytelling, Python, SQL, and advanced spreadsheets. Now, I am eager to leverage my big data and visualization skills in the digital marketing or retail sales sphere to drive growth and boost sales.
